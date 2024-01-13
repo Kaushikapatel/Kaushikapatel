@@ -2,7 +2,7 @@
 - 👀 I’m interested in Robotics - Team #4384..
 - 🌱 I’m currently learning how to use GIThub..
 - 💞️ I’m looking to collaborate on Benzene Bots..
-- 📫 How to reach me kaushika.bhgal@gmail.com ..
+- 📫 How to reach me kaushika.bhogal@gmail.com ..
 - 😄 Pronouns:She/her ...
 - ⚡ Fun fact: Head Coach of Benzene Bots #4384, Past Judge for FTC ...
 
